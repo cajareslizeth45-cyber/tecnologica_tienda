@@ -1,0 +1,1 @@
+# tecnologica_tienda
